@@ -1,0 +1,2 @@
+# birinchisi
+Mashg'ulot
